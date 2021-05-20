@@ -1,0 +1,5 @@
+1.What do you expect will end up being the biggest challenges of working in a team by the end of the term?
+Communication.
+
+2.Now that we're half way through, what is one aspect of teamwork that you're hoping to learn more about?
+leadership and communication.
